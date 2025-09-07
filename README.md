@@ -1,3 +1,5 @@
+![Image](https://github.com/user-attachments/assets/1b68733d-0aae-4d5d-9b23-11af04b9eceb)
+
 7TH SEPTEMBER 2025 STARTS 5PM JOIN US
 
 THE LAST SUPPER
